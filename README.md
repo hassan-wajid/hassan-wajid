@@ -1,2 +1,2 @@
-- 📫 You can reach me through my email:wajidhassanmoosa9375@gmail.com
+- 📫 You can reach me through my email:whmoosa@gmail.com
 
